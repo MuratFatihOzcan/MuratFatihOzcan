@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/MuratFatihOzcan](https://github.com/MuratFatihOzcan)
 
-- 📫 How to reach me **fomurat83@gmail.com**
+- 📫 You can contact me from **fomurat83@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
